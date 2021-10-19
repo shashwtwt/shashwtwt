@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shashwtwt
 - 👀 I’m interested in copywriting, humour writing, philosophy, and music.
-- 🌱 I’m currently learning how to sell my Github profile as a resume for an internship at FamPay.
+- 🌱 I’m currently learning how to sell my Github profile for an internship at FamPay.
 - 💞️ I’m looking to collaborate on projects that benefit capitalism.
 - 📫 How to reach me? Just dial the number on my resume, no.
 
